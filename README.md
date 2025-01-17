@@ -2,7 +2,7 @@
 
 Obtain all videos and bigger files from emload using our open source generator tool and have your own premium account membership email and password for free.
 
-✔️[GET Your ACCOUNTS NOW HERE](http://4free.cyou/to/jumploads)
+✔️[GET Your ACCOUNTS NOW HERE](http://4free.cyou/to/emload)
 
 .
 
